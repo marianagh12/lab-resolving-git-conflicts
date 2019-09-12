@@ -1,5 +1,4 @@
 
-
 Sinaloa, Mexico
 Trabajo en finanzas
 no
